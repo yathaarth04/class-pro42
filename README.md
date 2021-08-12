@@ -1,1 +1,1 @@
-https://yathaarth04.github.io/pro-c42/****
+https://yathaarth04.github.io/class-pro42/
